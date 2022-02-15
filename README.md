@@ -4,13 +4,13 @@
 - 💞️ I’m looking to collaborate on machine learning on retail.
 - 📫 How to reach me ... Follow me in:
 
-Linkedin
+> Linkedin
 https://www.linkedin.com/in/arqhp/
 
-Twitter
+> Twitter
 https://twitter.com/VictorH45457181
 
-Whatsapp
+> Whatsapp
 55 13 33 72 58
 
 <!---
